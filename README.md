@@ -1,1 +1,1 @@
-# Educology
+# EducologY
